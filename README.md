@@ -1,2 +1,0 @@
-# Shadu
-Shamshad Hussain
